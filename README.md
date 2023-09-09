@@ -10,3 +10,8 @@ Yo, talk to me about this. Like, I just discovered that the maximum lifetime of 
 # companies in this space
 
 - cerabyte: https://www.youtube.com/watch?v=6CJs4-qJmfQ
+
+# reach out
+
+hcdp@dosyago.com
+
